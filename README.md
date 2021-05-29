@@ -10,4 +10,4 @@ Discord: HeckLordMagic#0194
 
 Twitter: @raresgxd
 
-Thanks for reading! Have fun!
+Thanks for reading!
