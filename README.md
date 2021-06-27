@@ -1,6 +1,6 @@
 Hello there! Welcome to my little nerdy corner of the internet, make yourself cozy.
 
-I am currently working on the synical network 
+I am currently working on many projects
 
 Ways to reach me:
 
